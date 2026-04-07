@@ -2,6 +2,8 @@
 
 Primary communication is still done through our Discord, contact a member for access.
 
+[Join our Discord](https://discord.gg/38awUJzzET)
+
 ## Upcomming Events:
 
 Last updated: 2026-04-08
